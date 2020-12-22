@@ -1,3 +1,6 @@
+## 林奕銜
+[Imgur](https://i.imgur.com/WrdjG7K.jpg)
+
 ## 學歷
 長庚大學 資訊管理學系  <br />
 國立臺北大學 資訊管理研究所
